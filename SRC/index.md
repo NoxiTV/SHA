@@ -1,2 +1,3 @@
 Fue la tercera vez que el torneo se disputó en el continente asiático tras la edición de 2002 jugada en Corea del Sur y Japón y la de Rusia 2018 (aunque esta última contaba con una sola sede en territorio asiático);3​ y la primera que se celebró en Asia Occidental. También, por primera vez, el torneo tuvo lugar en Oriente Próximo, en un país árabe y de mayoría musulmana, así como el de menor extensión territorial.4​
 
+weeenaaaaa
